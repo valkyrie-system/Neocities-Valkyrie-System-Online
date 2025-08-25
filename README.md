@@ -1,3 +1,2 @@
 # Neocities-Valkyrie-System-Online
-# Neocities-Valkyrie-System-Online
-# Neocities-Valkyrie-System-Online
+# README TO BE POPULATED
